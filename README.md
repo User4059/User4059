@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @User4059. Full name Peter Koopedi
+- 👀 I’m interested in Machine learning.I’m currently learning python coding and create a coding repository and progression.
